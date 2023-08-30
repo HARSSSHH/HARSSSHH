@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HARSSSHH
 - 👀 I’m interested in ...webdevloping aimls debugging and algorithem
 - 🌱 I’m currently doing my btech in ece with specs in aiml from nsut delhi
-- 📫 How to reach me ...@errorhuhh (insta)
+- 📫 How to reach me ...@frharxsxh (insta)
 
 
 <!---
